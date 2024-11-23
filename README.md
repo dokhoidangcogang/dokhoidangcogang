@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning Control and Automation Engineering
 - 💞️ I’m looking to collaborate on no one 
 - 📫 Contact: khoihai123456@gmail.com
-- 😄 Pronouns: ...
+- 😄 Relation: no one in my head
 - ⚡ Fun fact: i love music, haha
 
 <!---
